@@ -10,5 +10,5 @@ featured too we are low on people the discord server is <a href="https://discord
 <b>Opaque Smp</b>
 
 A smp by me :) discord link is <a href="https://discord.gg/CZ6NtHb3s7">this</a> 
-  
-well thats it might try adding more pages byee
+
+byee
