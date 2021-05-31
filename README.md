@@ -7,7 +7,7 @@ An Au where it involves some some of my friends in a smp (involves me too :D ) i
 featured too we are low on people the discord server is <a href="https://discord.gg/E2DJ5YcPky
 ">this</a>
 
-<b> <a href="https://mythic4356.github.io/opaque_smp/">Opaque Smp</a> </b>
+<b> <a href="https://mythic4356.github.io/OpaqueSmp/">Opaque Smp</a> </b>
 
 A smp by me :) discord link is <a href="https://discord.gg/CZ6NtHb3s7">this</a> 
 
